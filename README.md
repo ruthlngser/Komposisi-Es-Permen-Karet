@@ -1,1 +1,0 @@
-# Komposisi-Es-Permen-Karet
